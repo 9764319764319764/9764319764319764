@@ -1,4 +1,4 @@
-- 👋 hamedmensvri@gmail.com
+hamedmensvri@gmail.com- 👋 hamedmensvri@gmail.com
 - 👀cp8cG-f4hRUw!KB
 - 🌱hamed 
 - 💞️ ..
